@@ -10,3 +10,6 @@ Meu nome é Laura Beatriz Krauss Gonçalves da luz
 laura.goncalves.luz@escola.pr.gov.br
 
 @laurinha_ksks_
+
+![](https://media.tenor.com/XKaKS-ZIOFwAAAAC/gojo-gojo-satoru.gif)
+
